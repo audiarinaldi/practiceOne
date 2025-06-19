@@ -1,2 +1,2 @@
 # practiceOne
-Odi tinggal dimana
+Odi tinggal dimana? Ragunan...
